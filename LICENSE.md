@@ -1,4 +1,4 @@
-
+Experience one tap like never before with elite one tap Scripts, the #1 Script. Includes auto-heal and silent aim for unbeatable performance.
 
 
 
